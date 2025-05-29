@@ -1,6 +1,6 @@
 I am currently working as a freelancer and have 2 years of experience, having worked on 4 separate successful & unsuccessful projects before that.<br>
 # 💫 About Me:
-<br>🔭 I’m currently working on we cant find a name<br><br>🔰 Previous project I worked emlakcim.online<br><br>📫 How to reach me sonberkhay01@gmail.com<br>
+<br>🔭 I’m currently working on we cant find a name<br><br>🔰 Previous project I worked https://www.emlakcim.online & https://www.asliablaninmutlucocuklari.com <br><br>📫 How to reach me sonberkhay01@gmail.com<br>
 
 
 ## 🌐 Socials:
